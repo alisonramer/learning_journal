@@ -1,0 +1,3 @@
+The past few days have been difficult. I felt that I was falling a bit behind. I didn't realize that I missed a reading and it was a VERY important reading! Luckily, I was able to catch up a bit during lab and by staying late on Monday.  I am so impressed by the TAs dedication to students and other students continual persuit of the work. I can see that it is getting difficult now, but I love how people are continuing to dig in and support each other.
+
+I am really enjoying javascript. It is so different from other work that I've done and requires a lot of patience on my part as I feel that I am walking in the dark -- but  I can definitely see that I am making progress and that if I keep going, I will be able to use javascript for practical and creative uses.
