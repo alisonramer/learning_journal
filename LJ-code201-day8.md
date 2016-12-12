@@ -1,0 +1,3 @@
+I am finally getting my work flow down and I'm excited by that. I am learning when I have to take notes, how to remember different things as I go through sometimes the long process of trying to see if different things will work or not. I find that lists and visuals are helping me and using paper, just to keep my thoughts flowing and remember what I am doing is very helpful.
+
+I really am looking forward to the week we have between 201 and 301 to further work on my skills and just keep practicing. I often feel like we are moving so fast that I cannot practice the way that I would like. But that's ok! This is full stack, I'll just keep going! 
